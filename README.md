@@ -1,2 +1,2 @@
-👋 Hi, I’m @Kono-Suba
+👋 Hi, I’m Furina
 
